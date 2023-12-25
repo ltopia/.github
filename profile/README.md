@@ -1,1 +1,1 @@
-  luck/lucid/lucrative utopia
+luck/lucid/lucrative utopia
